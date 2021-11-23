@@ -4,7 +4,7 @@
 
 Eu tinha um iPhone 11, porém deixei acidentalmente cair na piscina por alguns segundos e, depois de uns dias a tela ficou completamente preta com alguns riscos. Devido a isso e ao fato de eu ser criadora de conteúdo, decidi investir em um celular legal e top de linha atulamente.
 
-[Acompanhe no vídeo do youtube a abertura do novo celular]()
+[Acompanhe no vídeo do youtube a abertura do novo celular](https://www.youtube.com/watch?v=68ooxCquars)
 
 ## Primeiras impressões e comparação do design com o meu antigo iPhone 11
 - IOS 15.1 no momento da gravação
@@ -75,7 +75,7 @@ O ProRes é um formato de compressão de vídeo que comprime footings RAW de uma
 O “problema” do ProRes é que cada arquivo capturado nesse formato fica gigantesco. Para vocês terem uma ideia, um minuto de vídeo em ProRes com resolução 4K ocupará cerca de 4-6GB no iPhone.
 
 **Vocês gostariam de mais vídeos como esse?**
-Deixe nos comentários do [vídeo]() o que gostaria de ver e não esqueça de se inscrever no [canal](https://youtube.com/RafaellaBallerini)!
+Deixe nos comentários do [vídeo](https://www.youtube.com/watch?v=68ooxCquars) o que gostaria de ver e não esqueça de se inscrever no [canal](https://youtube.com/RafaellaBallerini)!
 
 ## Fontes:
 
